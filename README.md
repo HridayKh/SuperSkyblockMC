@@ -1,2 +1,1 @@
-# TO BE IGNORED
-# SIDE PROJ I AMY NOT CONTINUE
+# discontinued
